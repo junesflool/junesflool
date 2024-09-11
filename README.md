@@ -1,2 +1,2 @@
-<img src="https://pbs.twimg.com/media/GUdleQqaMAAuUkg?format=jpg&name=4096x4096">
-art <a href="https://x.com/cirqlr">by</a> @cirqlr on twt
+<img src="https://pbs.twimg.com/media/GQZ2EqLaIAUF_RV?format=jpg&name=large">
+art by <a href="[https://x.com/cirqlr](https://x.com/meltsmelts)">@melts</a>
